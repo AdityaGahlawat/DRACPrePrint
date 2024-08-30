@@ -1,2 +1,1 @@
-# AdityaGahlawat.github.io/DRACPrePrint
-
+Direct link to the file https://adityagahlawat.github.io/DRACPrePrint/ManuscriptGlobalCite.pdf
